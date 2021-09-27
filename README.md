@@ -1,1 +1,1 @@
-Lightning Tech
+Learn Tech
